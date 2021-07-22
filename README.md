@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ejamorim
 - 👀 I’m interested in data and soccer/football
 - 🌱 I’m currently learning about data
-- 💞️ I’m looking to collaborate on 
 - 📫 You can reach me onn ejramorim30@gmail.com
